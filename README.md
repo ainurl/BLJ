@@ -1,0 +1,2 @@
+# BLJ
+miskin ilmu
